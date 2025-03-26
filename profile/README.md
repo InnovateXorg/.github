@@ -18,4 +18,6 @@ Welcome to **InnovateX**, a thriving community of passionate developers, enginee
 ### 🌍 **Join the Revolution!**  
 At InnovateX, we believe in **learning by doing**. Our mission is to create an ecosystem where creativity thrives, ideas turn into reality, and technology is leveraged for a better future.  
 
-🔗 **Get involved today!** Contribute to our repositories, participate in discussions, and help us shape the future of tech. 🚀✨
+📲 **Join our WhatsApp Community:** [Click Here](https://chat.whatsapp.com/IZuVR26Ki9YEt6bpTMOXKY)  
+
+🔗 **Get involved today!** Contribute to our repositories, participate in discussions, and help us shape the future of tech. 🚀✨  
